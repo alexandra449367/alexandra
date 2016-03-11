@@ -1,2 +1,0 @@
-# alexandra
-úprava pro hodnocení
